@@ -6,6 +6,6 @@
  - 🤔 I’m looking for help with deez
  - 💬 Ask me about deez
  - 📫 How to reach me: balls
-- 😄 Pronouns: pizza/pizzaself
+- 😄 Pronouns: deez/nutz
  - ⚡ Fun fact: nuts
 
